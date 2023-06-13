@@ -1,2 +1,2 @@
 CLASS REFLECTION
-Honestly during the class i barely understand a thing, it was kind difficult for me to understand. I think with more time and dedication to this subject i could learn and understand more :) I like that you gave us stickers and the patience you showed us. 
+Honestly during the class i barely understand a thing, it was kinda difficult for me to understand. I think with more time and dedication to this subject i could learn and understand more :) I like that you gave us stickers and the patience you showed us. I can tell it is a very usefull subject to make decisions based on analitycal data and make predictions about future events that could affect positive or negative the results and the programming aproach was very interesting. 
